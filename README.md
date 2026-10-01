@@ -6,3 +6,5 @@ milgya collaborator
 
 
 pull shark nhi aa raha
+
+hatt thak  gya main 
